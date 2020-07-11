@@ -1,3 +1,10 @@
+个人品牌形象
+Personal Image & Branding
+
+Evelyn Ch'ng 庄妮芸
+
+
+===
 https://event.my/e/304
 content
 
